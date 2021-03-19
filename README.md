@@ -1,1 +1,1 @@
-# Tradeshala.github.io
+# TRADEshala.github.io
